@@ -53,7 +53,7 @@ Student at Thakur college of Science and Commerce
 
 ## Feedback
 
-If you have any feedback, please reach out to us at swiezff@gmail.com
+If you have any suggestion or feedback, please reach out to us at swiezff@gmail.com
 
 
 ## 🚀 About Me
